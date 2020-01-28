@@ -1,0 +1,2 @@
+# NOVOTEL
+Novotel Rayong
